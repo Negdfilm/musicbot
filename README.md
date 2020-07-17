@@ -1,6 +1,6 @@
-**FRENZY CODE SUNUCUSUNA AİTTİR!**
+**NİCİUS TEAM SUNUCUSUNA AİTTİR!**
 -------------------------------------------------------
-hemen katılın => [FRENZY CODE](https://discord.gg/F5VD66M)
+hemen katılın => [NİCİUS TEAM](https://discord.gg/TvZ4cA7)
 
 
 Hata felan çıkarsa sunucuya gelin çözelim!
